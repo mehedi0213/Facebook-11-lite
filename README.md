@@ -1,7 +1,7 @@
 ### Facebook 11 lite
 ![image(Facebook 11 lite)](https://github.com/cpfile/Facebook-11-lite/assets/133189455/dd3c9ecc-7902-4c74-a1c9-9b540b9d6726)
 
-### Details 
+### Details....
 Facebook 11 lite is directly related to our spamming and hacking life. fb 11 lite is the clone version of facebook lite. Fb 11 lite is not a separate software it is cloned from Fb lite by different software. You can safely use Facebook 11 Lite. 
 
  ### How to download.....  
